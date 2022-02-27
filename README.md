@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @blendooo
+- 👀 I’m interested in boobs
+- 🌱 I’m currently learning massaging boobs
+- 💞️ I’m looking to collaborate on boobs
+- 📫 How to reach me send boob pics
